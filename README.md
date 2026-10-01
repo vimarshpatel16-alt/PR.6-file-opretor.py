@@ -710,6 +710,7 @@ Personal Journal Manager
 
 **Thank You!**
 
+video link=https://drive.google.com/file/d/15An35HyFRNN9OnMPsJlVNUQ-nlxqh3sH/view?usp=sharing
 
 
 
